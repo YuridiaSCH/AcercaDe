@@ -5,7 +5,7 @@
 ### Hola Compañeros, un gusto en saludarnos 👋
 
 
-Soy la estudiante 🍄 ✨ Yuridia Cortes ✨
+Me presento, soy la estudiante 🍄 ✨ Yuridia Cortes ✨
 
 Cursando la carrera de Ing. Sistemas Computaciones el en el Instituto Tecnologico de Tijuana 🤟
 

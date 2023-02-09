@@ -1,6 +1,6 @@
 # AcercaDe
 
-![]([https://images.cooltext.com/5508510.png](https://www.agropecuariosantalucia.com/wp-content/uploads/2020/12/hamster-ruso-sobre-el-suelo-1024x289.jpg))
+![image](https://user-images.githubusercontent.com/124212145/217955506-c240685b-1fcb-412a-9cae-4c4442debf0e.png)
 
 ### Hola Compañeros, un gusto en saludarnos 👋
 

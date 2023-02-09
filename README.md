@@ -16,7 +16,8 @@ Estudiane en las escuelas:
 - Actualmente ITT ❤
 
 Me gusta muchisimo:
-- Los hamsteres 🐀
+- Hamsteres 🐀
 - Hacer manualidades 🌷
 - Dibujar ✍
 - Escribir 🌈
+- Cerditos 🐽

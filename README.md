@@ -11,7 +11,7 @@ Cursando la carrera de Ing. Sistemas Computaciones el en el Instituto Tecnologic
 
 Estudiane en las escuelas:
 - Mi Patria es Primero 💛
-- Jesus eyes Heroles 😅
+- Jesus Reyes Heroles 😅
 - CECyTE Zona Rio 🙃
 - Actualmente ITT ❤
 
@@ -22,5 +22,5 @@ Me gusta muchisimo:
 - Escribir 🌈
 - Cerditos 🐽
 
-### Hasta la proxima! 🍄
+### Hasta la proxima amigos! 🍄
 
